@@ -1,2 +1,0 @@
-# HallohSayang
-Main Kejujuran Yuk
